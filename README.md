@@ -11,7 +11,7 @@ We are **Artseum IT Solution**, a dynamic IT company providing cutting-edge serv
 - 🎥 **3D Design & Animation**
 
 **Contact Us:**
-- 📞 **Phone**: [+971 56 606 6719 | +971 56 900 7480]
+- 📞 **Phone**: +971 56 606 6719 | +971 56 900 7480
 - 📧 Email:  [contactartseum@gmail.com](mailto:contactartseum@gmail.com) | [artseumitsolution@gmail.com](mailto:artseumitsolution@gmail.com)  
 - 🌐 Website: [www.artseumit.com](http://www.artseumit.com)
 
